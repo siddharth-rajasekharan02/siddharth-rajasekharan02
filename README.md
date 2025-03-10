@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer science and finance & economics.
 - 🌱 I’m currently learning JavaScript and Python.
 - 💞️ I’m looking to collaborate on some pretty basic computer science.
-- 📫 How to reach me: 3039297833
+- 📫 How to reach me: rajase.siddha02@svvsd.org, as well as at 303-929-7833
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I've been playing the violin for seven years as of 2025.
 
